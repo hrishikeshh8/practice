@@ -1,3 +1,3 @@
-# practice just practice thats all the gangsters ARE the og fans
+ # Hey There, I am Hrishikesh Naik
 where are you going 
 there are lots of fan  about og
