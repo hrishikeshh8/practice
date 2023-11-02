@@ -1,3 +1,3 @@
  # Hey There, I am Hrishikesh Naik
-where are you going 
-there are lots of fan  about og
+always looking for an oppurtunity to do better to achieve greatness 
+ 
